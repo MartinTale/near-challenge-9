@@ -1,4 +1,4 @@
-Challenge #9 - NEAR God and Churches
+# Challenge #9 - NEAR God and Churches
 
 NEAR God is recruiting and taking donations.
 
